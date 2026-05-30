@@ -1,4 +1,5 @@
 # How to Style New Arrivals Men’s Clothing 2026: Baggy Jeans, Cargo Pants & Streetwear Guide | Rockstar Jeans
+![Alt Text](new.webp)
 
 ## Introduction
 
